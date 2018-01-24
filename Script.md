@@ -25,6 +25,8 @@ He took a tentative step through the door and followed the stone path overgrown 
 Johnathan met the Unicorn King who granted him magic powers.
 The end.
 
+New Character Zoomer comes in.
+
 ## Cast
 
 * Young Boy: Eliel

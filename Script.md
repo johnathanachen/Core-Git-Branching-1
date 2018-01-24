@@ -23,7 +23,10 @@ The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
 Johnathan met the Unicorn King who granted him magic powers.
+Johnathan then drops a million magic marshmallows from the sky.
 The end.
+
+
 
 ## Cast
 
